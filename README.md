@@ -1,2 +1,0 @@
-# noffrialdi.github.io
-Resume
